@@ -1,5 +1,7 @@
 # 闲置书籍
 
+[![咸鱼链接](https://s2.ax1x.com/2019/09/04/nZJVyT.png)](http://t.cn/EZZuaPs)
+
 ## 理工类
 
 1. 《C语言程序设计教程》
