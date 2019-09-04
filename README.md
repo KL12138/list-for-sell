@@ -1,6 +1,6 @@
 # 闲置书籍
 
-[![咸鱼链接](https://s2.ax1x.com/2019/09/04/nZJVyT.png)](http://t.cn/EZZuaPs)
+[![咸鱼链接](https://s2.ax1x.com/2019/09/04/nZJVyT.png)](https://market.m.taobao.com/app/idleFish-F2e/widle-taobao-rax/page-detail?wh_weex=true&wx_navbar_transparent=true&id=602078489312&ut_sk=1.WdGvyPtD0xEDAE49EffXypS3_21407387_1567599067488.Copy.detail.602078489312.2204980727&forceFlush=1)
 
 ## 理工类
 
